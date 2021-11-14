@@ -16,7 +16,7 @@ As a creative, I present perspectives that I love.
 
 * Social <br>
   * [Are.na](https://www.are.na/james-the-blessed/blessed-bytes)
-  * [Twitter](https://twitter.com/BytesTheBlessed)
+  * [Twitter](https://twitter.com/0xdivi)
   * [Instagram](www.instagram.com/bytes_the_blessed)
   * [Facebook](https://www.facebook.com/jamestheblessed)
   * [OpenSea](https://opensea.io/Bytes_The_Blessed)
